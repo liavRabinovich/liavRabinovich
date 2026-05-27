@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @liavRabinovich
-- 🎓 3rd year in Biomedical engineering and Biology with neuroscience specialization at Tel Aviv University
+- 🎓 4th year in Biomedical engineering and Biology with neuroscience specialization at Tel Aviv University
 - 📫 How to reach me ...
 - ⚡ Fun fact: ...
 
